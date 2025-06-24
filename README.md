@@ -33,7 +33,7 @@
 
 点击访问：<a href="https://dy8-01.pages.dev/">抖音成人版抖音</a>
 
-点击访问：<a href="https://hl400.pages.dev/">黑料吃瓜资源/a>
+点击访问：<a href="https://hl400.pages.dev/">黑料吃瓜资源</a>
 
 点击访问：<a href="https://aw3-02.pages.dev/">暗网爆料社区</a>
 
